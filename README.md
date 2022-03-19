@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @itmendes
+- 👀 Estou interessado em Análise de Dados e Power BI
+- 🌱 Estou aprendendo Análise de Dados 
+- 💞️ Busco o máximo de informações possíveis em data analytics
+- 📫 Você pode me encontrar no instagram @Jvictormendes_
